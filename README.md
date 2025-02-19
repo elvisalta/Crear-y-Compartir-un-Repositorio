@@ -1,2 +1,2 @@
 # Crear-y-Compartir-un-Repositorio
-como ejemplo  tome como  un pfd para compartirlo del material de estudio 
+como ejemplo  tome  unos  pfd para compartirlo
